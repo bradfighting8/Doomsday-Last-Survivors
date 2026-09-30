@@ -217,4 +217,4 @@ Doomsday: Last Survivors is available as a **full free version** with all featur
 **Download Doomsday: Last Survivors now and embark on your strategic adventure in a thrilling post-apocalyptic world!**
 
 ---
-**Last updated:** 2026-09-30 00:50:35 UTC
+**Last updated:** 2026-09-30 06:06:49 UTC
